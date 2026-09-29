@@ -1,1 +1,0 @@
-c:\Users\Manasa\OneDrive\Pictures\02-results.png
